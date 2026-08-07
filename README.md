@@ -22,8 +22,7 @@ B.Tech Information Technology Student | AI & Machine Learning Enthusiast
 
 🤝 Open to internships and collaborations
 
-📧 Reach me at:
-yourgmail@gmail.com
+📧 Reach me at:dangeshraddha7@gmail.com
 
 ---
 
